@@ -10,6 +10,7 @@
 > ⋮ ⌗ ┆Pronouns: drowsy/drowsys/drowsyself
 
 > ⋮ ⌗ ┆Birthday: 3/25 XP
+
 ╰ · · ─── ·✶· ─── · ·‧₊˚✧
 
 ╭ · · ─── ·✶· ─── · ·‧₊˚✧
@@ -22,6 +23,7 @@
 > ⋮ ⌗ ┆Game(s): Minecraft, Pony Town
 
 > ⋮ ⌗ ┆Character(s): Bonnie, Spider-Man, Roach, Tubbo, Tim Bradford
+
 ╰ · · ─── ·✶· ─── · ·‧₊˚✧
 
 ╭ · · ─── ·✶· ─── · ·‧₊˚✧
