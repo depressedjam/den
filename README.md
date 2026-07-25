@@ -7,7 +7,7 @@
 
 > ⋮ ⌗ ┆Age range: 18-20
 
-> ⋮ ⌗ ┆Pronouns: drowsy/drowsys/drowsyself
+> ⋮ ⌗ ┆Pronouns: drowsy/drowsys/drowsyself, he/they
 
 > ⋮ ⌗ ┆Birthday: 3/25 XP
 
