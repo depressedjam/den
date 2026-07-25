@@ -3,7 +3,7 @@
 ╭ · · ─── ·✶· ─── · ·‧₊˚✧
 > ─ - ̗̀♡ About me!
 
-> ⋮ ⌗ ┆Name: Den/Pine
+> ⋮ ⌗ ┆Name: Den/Yuji/Pine
 
 > ⋮ ⌗ ┆Age range: 18-20
 
