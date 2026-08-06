@@ -20,9 +20,9 @@
 
 > ⋮ ⌗ ┆Fandom(s): FNAF, COD, Marvel, JJK, The Rookie
 
-> ⋮ ⌗ ┆Game(s): Minecraft, Pony Town
+> ⋮ ⌗ ┆Game(s): Pony Town, Minecraft, FNAF
 
-> ⋮ ⌗ ┆Character(s): Bonnie, Spider-Man, Roach, Tubbo, Tim Bradford
+> ⋮ ⌗ ┆Character(s): Bonnie, Spider-Man, Tubbo
 
 ╰ · · ─── ·✶· ─── · ·‧₊˚✧
 
