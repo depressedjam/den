@@ -3,7 +3,7 @@
 ╭ · · ─── ·✶· ─── · ·‧₊˚✧
 > ─ - ̗̀♡ About me!
 
-> ⋮ ⌗ ┆Name: Den/Yuji/Pine
+> ⋮ ⌗ ┆Name: Den/Pine/Peter/Yuji
 
 > ⋮ ⌗ ┆Age range: 18-20
 
@@ -18,7 +18,7 @@
 
 > ⋮ ⌗ ┆Colour(s): Blue, Red, Black
 
-> ⋮ ⌗ ┆Fandom(s): COD, Marvel, FNAF, JJK
+> ⋮ ⌗ ┆Fandom(s): FNAF, COD, Marvel, JJK, The Rookie
 
 > ⋮ ⌗ ┆Game(s): Minecraft, Pony Town
 
